@@ -9,3 +9,5 @@ I’m an international undergraduate student at St. Norbert College, pursuing a 
 - **Service Desk Technician & Card Services Employee**: Working within the IT department at St. Norbert College, where I provide technical support, troubleshoot issues, run diagnostics, and ensure seamless IT operations for the campus community. 🖥️🔧
 
 With a robust skill set in software development, data analysis, and technical support, I’m dedicated to leveraging these fields to create impactful solutions that drive positive change. 🚀
+
+Feel free to connect with Me! [LinkedIn](https://www.linkedin.com/in/3mocl/)
