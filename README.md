@@ -1,6 +1,6 @@
 ## About Me
 
-I’m an international undergraduate student at St. Norbert College, pursuing a double major in **Computer Science** and **Data Analytics**. 🌍📊
+Student at St. Norbert College, pursuing a double major in **Computer Science** and **Data Analytics**. 🌍📊
 
 ### Current Professional Experience
 
